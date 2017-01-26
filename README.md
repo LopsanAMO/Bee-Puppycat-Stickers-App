@@ -1,1 +1,1 @@
-# Bee-Puppycat-Stickers-App
+# Bee & Puppycat Stickers App
